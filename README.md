@@ -1,7 +1,7 @@
 ## WHAT'S UP BRO👋
 
 
-**Chanyanuch0/Chanyanuch0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Chanyanuch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Frequently used social media :
 
