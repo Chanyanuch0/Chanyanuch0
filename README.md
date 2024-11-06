@@ -2,7 +2,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 ==================================================================================================================================
 
 * 🌍  I'm based in Thailand
-* ✉️  You can contact me at [IG : navnprxxq FB : Chanyanuch Chanthaboon](mailto:IG : navnprxxq FB : Chanyanuch Chanthaboon)
+* ✉️  You can contact me at [IG : navnprxxq FB : Chanyanuch Chanthaboon]
 
 Frequently used social media :
 
