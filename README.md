@@ -1,7 +1,8 @@
-## WHAT'S UP BRO👋
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Chanyanuch
+==================================================================================================================================
 
-
-**Chanyanuch** is a ✨ _special_ ✨ repository because its `README.md`  appears on your GitHub profile.
+* 🌍  I'm based in Thailand
+* ✉️  You can contact me at [IG : navnprxxq FB : Chanyanuch Chanthaboon](mailto:IG : navnprxxq FB : Chanyanuch Chanthaboon)
 
 Frequently used social media :
 
